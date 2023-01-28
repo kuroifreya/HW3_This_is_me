@@ -15,4 +15,4 @@ Wish me goodluck!
 ---
 
 And thank you for your work!
-![Have a nice day](https://disk.yandex.ru/i/LyXnyTp-5FK6dQ)
+![Have a nice day](https://mobimg.b-cdn.net/v3/fetch/13/13f4575445dfc421cdbd498cb14ede78.jpeg)
